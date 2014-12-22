@@ -35,72 +35,80 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The remedy of prophanenesse. Or, Of the true sight and feare of the Almighty A needful tractate. In 
+Imprimatur.SA. BAKER.Octob. 11. 1637.
+1. The Contents.
+Reader,I Had meant to take leave of the Preſſe, as one that repented to bee guilty of this common ſu
+1. The Contents of the ſeverall Sections.
+
 #####Body#####
 
-1. The Proem.
+1. OF THE SIGHT and FEARE of the ALMIGHTY. The Firſt Book.
 
-1. SECT. II.
+    _ The Proem.
 
-1. SECT. II.
+    _ SECT. II.
 
-1. SECT. III.
+    _ SECT. II.
 
-1. SECT. IIII.
+    _ SECT. III.
 
-1. SECT. V.
+    _ SECT. IIII.
 
-1. SECT. VI.
+    _ SECT. V.
 
-1. SECT. VII.
+    _ SECT. VI.
 
-1. SECT. VIII.
+    _ SECT. VII.
 
-1. SECT. IX.
+    _ SECT. VIII.
 
-1. SECT. X.
+    _ SECT. IX.
 
-1. SECT. XI.
+    _ SECT. X.
 
-1. SECT. I.
+    _ SECT. XI.
 
-1. SECT. II.
+1. OF THE SIGHT and FEARE of the ALMIGHTY. The Second Book.
 
-1. SECT. III.
+    _ SECT. I.
 
-1. SECT. IV.
+    _ SECT. II.
 
-1. SECT. V.
+    _ SECT. III.
 
-1. SECT. VI.
+    _ SECT. IV.
 
-1. SECT. VII.
+    _ SECT. V.
 
-1. SECT. VIII.
+    _ SECT. VI.
 
-1. SECT. IX.
+    _ SECT. VII.
 
-1. SECT. X.
+    _ SECT. VIII.
 
-1. SECT. XI.
+    _ SECT. IX.
 
-1. SECT. XII.
+    _ SECT. X.
 
-1. SECT. XIII.
+    _ SECT. XI.
 
-1. SECT. XIV.
+    _ SECT. XII.
 
-1. SECT. XV.
+    _ SECT. XIII.
 
-1. SECT. XVI.
+    _ SECT. XIV.
 
-1. SECT. XVII.
+    _ SECT. XV.
 
-1. SECT. XVIII.
+    _ SECT. XVI.
 
-1. SECT. XIX.
+    _ SECT. XVII.
 
-1. SECT. XX.
+    _ SECT. XVIII.
+
+    _ SECT. XIX.
+
+    _ SECT. XX.
 
 **Types of content**
 
